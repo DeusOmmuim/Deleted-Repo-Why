@@ -1,1 +1,1 @@
-# Deleted-Repo-Why
+# I got a DMCA from a school.I understand. Besides the legal reasons, I also deleted my unblocked games repo and started over because the repo had become quite disorganized and stressful to maintain. Most of the links were broken or blocked, making it inefficient and frustrating for users. Starting fresh allows me to create a more streamlined and user-friendly experience.
